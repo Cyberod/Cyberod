@@ -1,4 +1,4 @@
-<img align='center' height='500' length='500' src='https://th.bing.com/th/id/OIP.v7gZipNXur2lMoCyvT35EwHaKx?pid=ImgDet&rs=1'>
+<img align='center' length='1000' src='https://th.bing.com/th/id/OIP.v7gZipNXur2lMoCyvT35EwHaKx?pid=ImgDet&rs=1'>
 
 
 - 👋 Hi, I’m @Cyberod
