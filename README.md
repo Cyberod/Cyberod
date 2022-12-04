@@ -1,4 +1,4 @@
-<img align='center' width='1020' src='[https://www.pinterest.com/pin/794111346773355607/](https://k60.kn3.net/taringa/1/4/0/4/9/1/25/3dm0nd84/570.gif : user-3dm0nd84)'>
+<img align='center' width='1020' src='https://th.bing.com/th/id/OIP.v7gZipNXur2lMoCyvT35EwHaKx?pid=ImgDet&rs=1'>
 
 
 - 👋 Hi, I’m @Cyberod
